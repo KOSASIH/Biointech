@@ -1,2 +1,2 @@
 # Biointech
-World innovations Bio Technology center
+World innovations Biotechnology center
